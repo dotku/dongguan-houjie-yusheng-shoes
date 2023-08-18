@@ -147,7 +147,8 @@
 
 * Alibaba
 * panjiva
-* The Dun & Bradstreet 
+* The Dun & Bradstreet
+* apollo.io
 
 ## Contact
 
