@@ -4,6 +4,78 @@
 
 * 东莞市厚街昱晟鞋业有限公司 Dongguan Houjie Yusheng Shoes Co., Ltd.
 * 漳州高晨鞋业有限公司 Gaochen Shoes Industry Limited Company
+* China YU SHENG SHOES MFCTR FACTORY G‐B‐M Hi‐Tech Optoelectronic Estate,Yuyuan Industrial Zone, Huangjiang, Dongguan, GuangDong
+* China JEFFER ENT CORP. CHU‐SUN SHOES FCTY 3rd District, Xiangmang Road, Qingxi Town, Dongguan, GuangDong, China
+* China Jiang Xi Yu Tai Shoe Ltd. Tankou Village, Tianfanjie, Poyang County, Jiangxi
+* China Dong Guan Pou Chen Footwear Company Limited Shao Tan Industrial Estate,Gaobu Town,Dong Guan, Guang Dong, China
+* China ZHAO QING CHUNGJYE MANUFACTURER.LTD 肇庆中杰鞋业有限公司 Town West Industrial Zone, NanAn, GaoYao, ZhaoQing, GuangDong
+* China Shang Gao Chung Jye Shoes co.ltd 上高中杰鞋业有限公司 NO.1 sunshine road Huangjindui industrial Area shanggao Town
+* China SHANG GAO CHUNG JYE SHOES CO.,LTD,, TIAN XIN BRANCH 上高中杰鞋业有限公司田心分公司 TIAN XIN TOWN INDUSTRIAL, SHANGGAO, YICHUN CITY, JIANGXI PROVINCE
+* China DONGGUAN TAIWAY SPORTS GOODS LTD. 东莞台威运动用品有限公司 Administrative area of Xiao Bian, Chang‐an town, Dongguan, Guangdong, China
+* China YONGZHOU SHINEWAY SPORTS GOODS LTD. 永州湘威运动用品有限公司 Intersection East Ave. and Industrial Ave., Tafeng Town, Lanshan County, Yongzhou City, Hunan
+* China Quanzhou Jiatai Shoes CO., LTD No.18 building, Jingpinyuan, Taishangtouzi District, Quanzhou City, Fujian Province, China
+* China Guangzhou Bang Lian Footwear Design Company, Ltd Pingsha Village, Baiyu District, Guangzhou, Guangdong, China (Inside CPT Mold Co Ltd.)
+* China DONGGUAN SHING TAK SHOES CO., LTD. Xiexi Village, Shatian, DongGuan, GuangDong
+* China DONGGUAN STELLA FOOTWEAR COMPANY 东莞兴昂鞋业有限公司 Hou Da Road, Da Ling Management District, Da Ling Shan Town, DongGuan, GuangDong
+* China SIMONA FOOTWEAR CO., LTD 兴鹏鞋业 4th of Xiaobian Management District, ChangAn Town, DongGuan, GuangDong
+* China FOSHAN CITY NANHAI GOLDEN STEP INDUSTRIAL CO.LTD. QIFONG INDUSTRIAL PARK, LISHUI TOWN, NANHAI,FOSHAN CITY, GUANGDONG 528244
+* China Chengdu New Meilidian Footwear Co., Ltd. 成都新美丽点 NO.22, Chong'an Road, Chongyang Town, Chongzhou, Chengdu, Sichuan, China
+* China CHENGDU DOMINI FOOTWEAR CO., LIMITED成都多米尼 No.10, Section 3, Western Shoes Industrial Park, Chengdu City, Sichuan Province, China
+* China Hangzhou Xin Xin Shoes Co., Ltd. 杭州欣欣 No. 693 Yuhang Road, Yuhang Town, Yuhang Distrct,Hangzhou City, Zhejiang Province
+* China Young Shoes, Co.,Ltd Economic Development Zone, Danyang City,Luxiang of Jiangsu Province, China
+* China Putian Lake Sports Goods Co., Ltd. Nanshaolin Industry Park,Xitianwei Town,Licheng District, Putian City, Fujian
+* China Jiangxi Yu Tai Shoes Co.Ltd.‐Lutian Factory Lutian Industrial Park,Lutian Town,Poyang County, Jiangxi
+* China Cimtex Composite Mfg.Co.,Ltd Qinghu Village, Junhe Street, Baiyun District, GuangZhou, GuangDong
+* China FU TAI PLASTIC MATERIAL FACTORY Yuyuan Industrial Zone,Huangjiang,Dongguan, GuangDong
+* China Dalian Sportech Apparel Co., 大連博泰服裝有限公司 153#, Liaohe Xi Road, Development Zone, Dalian, China 大連市經濟開發區辽河西路153號
+* China HAINING WANLU KNITWEAR CO., LTD 海宁万路针织有限公司 PENGDUN MARKET TOWN, YUANHUA TOWN, HAINING CITY, ZHEJIANG 海宁市袁花镇彭墩集镇
+* China Jiangmen V‐Apparel Manufacturing Ltd. 江门冠晖制衣有限公司 Jin Feng Industrial District, Luo Keng Town, Xinhui, Jiangmen, Guangdong, China
+* China Foshan Likai Textile Co., Ltd. (Lea Cheng Group) Block no. 16,Hegui Avenue,Hegui Industrial Distric of Heshun, Lishui County Nanhai District, Foshan of GD Province China
+* China Nantong Jackbeanie Headwear & Garment Co.,Ltd No.808, the 3rd Industry Park, Guoyuan Town Rugao City Jiangsu Province, China
+* China QUANZHOU HONGHAN GARMENT CO.,LTD. 泉州宏漢制衣有限公司 No.1Longshan First Road, Pioneer Base of Taiwan Enterprises, Huangtang Town, Huian
+* China Regina Miracle Intimate Apparel (Shenzhen) Ltd. 丽晶維珍妮内衣(深圳)有限公司 No.5 Cengyao Industrial Estate Yulu, Gongming Baoan, Shenzhen, Guangdong, P.R.China 中國廣東省深圳市光明新區
+* China QUANZHOU HONGHAN GARMENT CO.,LTD. 泉州宏漢制衣有限公司 No.1Longshan First Road, Pioneer Base of Taiwan Enterprises, Huangtang Town, Huian
+* China Regina Miracle Intimate Apparel (Shenzhen) Ltd. 丽晶維珍妮内衣(深圳)有限公司 No.5 Cengyao Industrial Estate Yulu, Gongming Baoan, Shenzhen, Guangdong, P.R.China 中國廣東省深圳市光明新區
+* China Shanghai Lion City Textile Co. Ltd 上海獅城妨织有限公司 No. 1515 Huyi Road Shanghai China 201802 上海市嘉定區南翔鎮沪宜公路1515號
+* China Zhuhai Pacific Gain Garment Fty Ltd 珠海合盈製衣有限公司  南屏分公司 2‐3/F, No 10, Pingdong West Rd, Nanping Science Park Zhuhai 珠海南屏科技園屏東三路10號錦達大樓2‐3樓
+* China Yishui Huiyang Apparel Co., Ltd 沂水慧阳制衣有限公司 Economic Development Zone, Yishui City, Shandong Province, China 中國山东省沂水县经济开发区
+* China Xiament Intellect Garment Co., Ltd. 4F, Tung‐Fa Building , Shang‐Tang Village. Guan‐Ko Town Xiamen. Fujian province. China
+* China DONGGUAN KIN YIP BAGS & HATS MANUFACTORY LTD GUXIA, SHIPAI TOWN, DONGGUAN CITY, GUANGDONG PROVINE, P.R. CHINA. POST CODE: 523330
+* China Zhuhai Mei Sun Garment Co. Ltd. 6 Floor, Block 1 , Zao Bei Dong Shan Industrial Zone, Qian Shan , Zhuhai, China.
+* China SHANGHAI RELIABLE SOURCE INDUSTRIAL CO.,LTD. NO88 YULU ROAD MALU TOWN JIADING DISTRICT SHANGHAI CHINA
+* China Qingdao Tenghua Apparel Co.,Ltd No.219, North of Chongqing Road, Chengyang, Qingdao, China
+* China Xiangshan Eco‐friendly Knitting Co.,Ltd. No.280 Penglai Road, Danxi Street, Xiangshan County, Zhejiang Province, 315700 CHINA
+* China JINGJIANG SHENSHEN KNITWEAR&TEXTILE CO.,LTD JINGJIANG WEST RD, JINGJIANG, JIANGSU, CHINA
+* China Yuecheng (Kunshan)sports Co., Ltd. 裕晟(昆山)体育用品有限公司 No.8, Qiangxiang road, Economy & Technology Developing Zone, Kunshan, Jiangsu 江苏省昆山市经济技术开发区强巷路8号
+* China NINGBO JIANA DRESS CO., LTD. BUILDING D, JIALE INSUSTRIAL ZONE, NO. 269, EAST YUNLIN ROAD, YINZHOU DISTRICT, NINGBO CITY, ZHEJIANG
+* China Heshan Top Eagle Garment Ltd. District 3 of Hecheng Industrial Park , Heshan City, Guangdong China
+* China Zhu Hai Haoyuan Garment Co. Ltd No. 13 Jingfeng Road West, Jinding, Tangiawan Town, High‐Tech Distric. ZhuHai City China
+* China Gooddale (Sportswear) Limited 2nd Industry, Shiwan Town, BoLuo, Huizhou, Guangdong, China
+* China Dongguan Zerong Bag Co.,Ltd. Xixi Village, Liaobu Town, Dongguan City, Guangdong Province,China
+* China Wellpower(Dongguan)Sporting Goods Co., Ltd 東莞威保運動器材有限公司 KengKou Industrial Zone,Liaobu Town, Dongguan.东莞寮步坑口管理区
+* China Dongguan City Eon Sporting Good Co., Ltd.东莞市益安运动用品有限公司 中国广东省东莞市沙田镇齐沙村齐沙工业区A栋
+* China Vking Rubber Tech. Co., Limited 东莞市越境橡塑科技有限公司 东莞市万江新村新宁基村牛尾巷
+* China Wei Xu Yiyang Sports Equipment Co., Ltd 益陽偉旭運動器材有限公司 A8 Building, East New Road, High‐tech District, Yiyang City, Hunan Province
+* China ShenZhen AT Sports Enterprise Ltd.深圳市沃特尔实业有限公司 Building 3, Datong Industrial Zone,  Lou Village, Shenzhen,
+* China Montel Plastics Overseas Trading CO Limited 深圳市山狮塑胶有限公司 1st floor, A21 build, TanTou West Industry Zone, Songgang Town, BaoAn district, ShenZhen, China 深圳市宝安区松岗镇潭头西部工业区A21 栋一楼
+* China Platinum Sporting Goods (SZ) Ltd 明良运动用品（深圳）有限公司 2 Floor,7B, Wanxia  Industrial Park., Tongfuyu Industrial zone , Shajin Street, Shenzhen, China
+* China Chuan Yi Qi Tech. (Shenzhen) Co.,Ltd. 深圳市创一其科技有限公司 Building#2,Section C The 3nd Industrial Area,ZhuKeng Village,Pingshan New District,Shenzhen City, GuangDong, China、深圳市坪山新区竹坑村第三工业区C区2栋
+* China Kang Teng Sports Goods (Shenzhen) Co., Ltd 深圳市康腾体育用品有限公司 Si Fang Pu Community,Tong Xin South Road 6th, Ping Di Street, Long Gang,Shen Zhen,Guang Dong. China 深圳龙岗区坪地街道四方铺社区同心南路6号
+* China Mountain Spring Plastics, Zengcheng Ouya 广州增城市欧亚塑胶制品厂 #1 Xia Niu Road, Shitan Zhen, Zengcheng City, Guangdong Province PRC
+* China Da Xin Sports Net Co.Ltd. 大鑫五金运动用品制造厂 Dalingxia  Village  Xinyu Town Huizhou China 惠州惠阳区新圩镇新联管理区大岭下工业区
+* China Jin He Feng Sports Goods Manufacture 金禾豐運動用品製造有限公司 Bao Long Industrial Zone, Tuocheng Town, Longchuan District, Heyuan City, Guangdong Province,
+* China Full Tech Co.,ltd 中山市富达运动器材有限公司 No.52, Qianjin 3rd Road,Tanzhou Town, Zhongshan City, Guangdong Province, China 广东省中山市坦洲镇前进三路52号
+* China Xiamen Spark Sports Goods Co. Ltd.厦门思巴克运动用品有限公司 NO.55‐56,Siming Garden Industry Centrical Zone 厦门市同安工业集中区思明园55‐56号
+* China Xiamen Pulsa Sporting Goods Co. Ltd.厦门元保运动器材有限公司 No. 33 Xinglin N. Rd., Jimei District, Xiamen, China 廈門市集美區杏北路33號郵
+* China Shanghai Chuangyuan Plastics Co., Ltd. Building No.1, NO. 615, Hengmianjiang Road, Sunqiao, Zhangjiang Town, Pudong New District, Shanghai
+* China Taizhou Shun Guang duds Co., Ltd. No. 68, Xingtai Road, Taizhou City, Jiangsu Province
+* China Shanghai Danwa Apparel Co., Ltd. 上海丹华服饰丝印有限公司 No. 38 Nanhua Street, Huacao Town, Minhang District, Shanghai City, China 中国上海市闵行区华漕镇南华街38号
+* China Dong Guang Hui Feng Shoes’ material Co. Ltd. NanGe Economic Development Area, DaoJiaoTown DongGuan City GuangDong Province  
+* China Jun Ming sublimation Factory Qiao Tou Mangagement District,Hou Jie Town,Dong Guan,Guang dong,PRC
+* China Dongguan He Da Shoe Material Co., Ltd previously: Dongguan Yongmao shoes Co.Ltd Zhonglong road,gaolong street,gaobu town,dongguan city,guangdong province
+* China FOSHAN NANHAI TOWEL CO.,LTD The eastern industrial park, helangsha,lishui Town,Nanhai Distrist,Foshan
+* China Dongguan Country Bright Garment Co.Ltd. Block 7, Lin Bei Ling, Xie Gang Town, Dongguan, Guangdong, China
+* China Beili Sportswear CO.,LTD. B‐Building, #4 Guangren Road East, Jiu Long Gang, Xiao Jin Kou, Huizhou, Guangdong, China 5 
 * China Able Glad (ShaoXing) Co., Ltd No. 301, TangGong Road, PaoJiang ShaoXing City 312000 LIC
 * China Allied Fashion Glove (Zhangpu) Co., Ltd. Suian Development District, ZhangPu County Zhangzhou ACC
 * China AnHui TangYu Textile Corp Jing 3rd Road, Economic Development Zone Lu'An 237161 APP
